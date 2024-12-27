@@ -1,4 +1,4 @@
-# YearCompass 2023 | 2024
+# YearCompass 2024 | 2025
 
 
 
@@ -38,7 +38,7 @@ Let go of your expectations.
 
 Start when you feel ready.
 
-# The past year → 2023
+# The past year → 2024
 
 ---
 
@@ -321,7 +321,7 @@ Take a deep breath.
 
 Get some rest.
 
-# The year ahead → 2024
+# The year ahead → 2025
 
 ---
 
